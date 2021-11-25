@@ -40,4 +40,4 @@
 
 ![Asset 12](https://user-images.githubusercontent.com/95048706/143500595-f5a7acbb-c09a-4a12-955c-f3ee6651687d.png)
 
-It's as easy as that! Good luck, it's down to you to save the world- no pressure. 
+It's as easy as that! Good luck, it's down to you to save the whole world- no pressure. 
